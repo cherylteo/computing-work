@@ -1,5 +1,5 @@
 # computing-work
-one sunny and bright day i was walking on the road and i suddenly fell into the drain
+The air was still on a cold winter sunday, i was walking on the road and i suddenly fell into the drain
 in the drain i saw it
 it was a clown with sharp teeth and ugly face
 come here little kiddo he said
